@@ -124,7 +124,7 @@ A:active {
         <font color=#ff9933> 
         ##########################################</font><font color=white>#############################################</font><font color=green>#############################################</font><br><font color=white>
         -==[[Greetz to]]==--</font><br> <font color=#ff9933>Guru ji zero ,code breaker ica, root_devil, google_warrior,INX_r0ot,Darkwolf indishell,Baba ,Silent poison India,Magnum sniper,Atul Dwivedi,ethicalnoob Indishell,Local root indishell,Irfninja indishell<br>Reborn India,L0rd Crus4d3r,cool toad,Hackuin,Alicks,Ebin V Thomas,Dinelson Amine,Th3 D3str0yer,SKSking,rad paul,Godzila,mike waals,zoo zoo,cyber warrior,Neo hacker ICA<br>cyber gladiator,7he Cre4t0r,Cyber Ace, Golden boy INDIA,Ketan Singh,Yash,Aneesh Dogra,AR AR,saad abbasi,hero,Minhal Mehdi ,Raj bhai ji , Hacking queen ,lovetherisk and rest of TEAM INDISHELL<br>
-<font color=white>--==[[Love to]]==--</font><br># My Father , my Ex Teacher,cold fire hacker,Mannu, ViKi,Suriya Cyber Tyson ,Ashu bhai ji,Soldier Of God,almas malik, Bhuppi,Mohit, Ffe ^_^,Ashish,Shardhanand ,Budhaoo,Don(Deepika kaushik) and acche bacchi(Jagriti) <br>
+<font color=white>--==[[Love to]]==--</font><br># My Father , my Ex Teacher,cold fire hacker,Mannu, ViKi,Suriya Cyber Tyson ,Ashu bhai ji,Soldier Of God,almas malik, Bhuppi,Mohit, Govind, Gujjar PCO,Ffe ^_^,Ashish,Shardhanand ,Budhaoo,Don(Deepika kaushik) and acche bacchi(Jagriti) <br>
 <font color=white>--==[[Interface Desgined By]]==--</font><br><font color=red>GCE College ke DON :D</font>        <br></font>
         <b> 
         <font color=#ff9933> 
